@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @AcryTeryx
-- 👀 I’m interested in league of legend
-- 🌱 I’m currently learning league of legend
-- 💞️ I’m looking to collaborate on league of legend
-- 📫 How to reach me in the league of legend
-- 😄 Pronouns: League/Legend
+- 👀 I’m interested in Games
+- 🌱 I’m currently learning plenty of things
+- 💞️ I’m looking for a stage/alternance
+- 📫 You can reach me at thomas.laucournet@ynov.com
 - ⚡ Fun fact: i play Draven
 
 <!---
