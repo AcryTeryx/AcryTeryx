@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AcryTeryx
 - 👀 I’m interested in Games
 - 🌱 I’m currently learning plenty of things
-- 💞️ I’m looking for a stage/alternance
+- 💞️ I’m looking for an internship/work-study
 - 📫 You can reach me at thomas.laucournet@ynov.com
 - ⚡ Fun fact: i play Draven
 
